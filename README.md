@@ -1,1 +1,1 @@
-# sattaking
+best site for <a title="satta king record chart" href="https://satta-king.online/">satta king </a> result, leak number  all game record charts. We provide 100% fix number direct from <a href="https://satta-king.online/gali-satta-king-record-chart-2020.php">Satta king gali</a> company which includes all famous game
